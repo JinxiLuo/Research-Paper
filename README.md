@@ -17,17 +17,17 @@ The various areas of the retail business discussed in the paper suggest that the
 
  1. Define and select areas of group research interest.
  
- * Accounting for the interest of each member and time frame. A to be final topic of research was decided upon based on preliminary research from the literature.
+    * Accounting for the interest of each member and time frame. A to be final topic of research was decided upon based on preliminary research from the literature.
  
   
  2. Perform individual research in selected areas to refine research goals.
  
- * Each member created an individual methodology to answer research questions in their selected area. Then a grouped methodology as created from the individual that could be followed by everyone based on common questions, alignment of goals and feasibility.
+    * Each member created an individual methodology to answer research questions in their selected area. Then a grouped methodology as created from the individual that could be followed by everyone based on common questions, alignment of goals and feasibility.
      
      
  3. Iterate and share progress. 
  
- * Following through with the group methodology to answer questions in each member selected areas, we discussed findings and potential need to further refine goals and paper structure. 
+    * Following through with the group methodology to answer questions in each member selected areas, we discussed findings and potential need to further refine goals and paper structure. 
 
 
 
